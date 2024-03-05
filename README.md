@@ -1,0 +1,2 @@
+# ethical
+king holy shit 
